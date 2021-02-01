@@ -1,4 +1,4 @@
-## Meus Projetos 👨‍💻
+## Meus Projetos 👨🏻‍💻
 
 Projeto 👇 | Link 👇
 ------------ | -------------
